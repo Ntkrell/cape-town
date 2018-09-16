@@ -40,7 +40,7 @@
 * Before heading to the airport, we took a stroll along Beach Road passing Sea Point Pavilion and Milton Beach in Sea Point. 
 
 ## Beers
-* We tasted a fair number of beers. You can check them out [here](https://untappd.com/user/Jovinslvr/lists/379675).
+* We tasted a fair number of beers. You can check them out [here](https://untappd.com/user/Jovinslvr/lists/379675). Need to be logged in to see. 
 
 ## Things we didn't do
 * Kirstenbosch National Botanical Garden - our Uber driver was born here (probably 1950s) but now it is a garden at the foot of the Table Mountain range
