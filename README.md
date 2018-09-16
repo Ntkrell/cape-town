@@ -7,10 +7,10 @@
 * After dropping our things we went out exploring and found a super delicious coffee joint: [Grind 4 Truth coffee](https://goo.gl/maps/Vt4CbZ2gUQM2). 
 * Then we walked to [Marco's African Place](https://goo.gl/maps/grcVYaHgzxT2) and tried some exotic food. The restaurant looked closed on the outisde -- but it wasn't! Although a bit touristy, the food was recommended and it was delicious. We ate the Serengeti platter which had crocodile tile, kudu and impala. We ate umngqusho with it which is samp with beans, onions and potatoes. 
 * We walked around Bree street and went for happy hour at [La Parada](https://goo.gl/maps/wKZBeXoGpo42) where they have 2 for 1 drinks from 5-7 pm. The tapas there looked good walking up Bree street. 
-* For dinner we ate at [South China Dim Sum](https://goo.gl/maps/NbtqHADiP422). As Josh calls it, this was white people Dim sum, but I really enjoyed it since we can't get anything like that in Kenya. 
+* For dinner we ate at [South China Dim Sum](https://goo.gl/maps/NbtqHADiP422). As Josh calls it, this was white people dim sum, but I really enjoyed it since we can't get anything like that in Kenya. 
 
 ### Day 2
-* Coffee at Grind 4 truth again
+* Coffee at Grind 4 truth again.
 * [Iziko Bo Kaap Museum](https://goo.gl/maps/s2Gxhw95GRE2) - this house built in 1763 is the oldest in the Bo Kaap neighborhood: Malay's enclave nestled in Signal Hill. The museum showcases Cape Muslims' history and culture with its iconinic multi-colored brightly painted houses (done in the 90s when apartheid ended) with front terraces which typify Cape Muslim's social culture. The Dutch East India Company brought the original Malays to CT from 1658 who came from the Indonesian Islands, Sri Lanka and India. Bo-Kaap means "above Cape Town".
 * [Biesmiellah Restaurant](https://goo.gl/maps/UphFv6Qez862) for lunch -- this restaurant does not appear to be much on the outisde & despite having burgers on the menu, it does serve yummy Cape Muslim food. We ate their samosas, [bobotie](https://en.wikipedia.org/wiki/Bobotie), and [denning vleis](https://www.cookhalaal.com/recipe/denning-vleis/). The food here is halala and it does not serve alcohol. 
 * Walked around Green market square, which is dotted with historical buildings and open air market stands. 
@@ -38,6 +38,9 @@
 ### Day 5
 * [Kleinsky's Deli](https://goo.gl/maps/P3HEG7J4u7t) for breakfast. Jewish bites like challah french toast and latke benedicts. Our stomaches were a bit off after this meal but it was good anyways. 
 * Before heading to the airport, we took a stroll along Beach Road passing Sea Point Pavilion and Milton Beach in Sea Point. 
+
+## Beers
+* We tasted a fair number of beers. You can check them out [here](https://untappd.com/user/Jovinslvr/lists/379675).
 
 ## Things we didn't do
 * Kirstenbosch National Botanical Garden - our Uber driver was born here (probably 1950s) but now it is a garden at the foot of the Table Mountain range
