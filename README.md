@@ -6,20 +6,18 @@
 * Our [first Airbnb](https://www.airbnb.com/rooms/plus/16825409), on the safe & centrally Bree street in the CBD. The city center is quite compact so you can get around easily on foot. Highly recommend this spot.
 * After dropping our things we went out exploring and found a super delicious coffee joint: [Grind 4 Truth coffee](https://goo.gl/maps/Vt4CbZ2gUQM2). 
 * Then we walked to [Marco's African Place](https://goo.gl/maps/grcVYaHgzxT2) and tried some exotic food. The restaurant looked closed on the outisde -- but it wasn't! Although a bit touristy, the food was recommended and it was delicious. We ate the Serengeti platter which had crocodile tile, kudu and impala. We ate umngqusho with it which is samp with beans, onions and potatoes. 
-* We walked around Bree street and went for happy hour at [La Parada](https://goo.gl/maps/wKZBeXoGpo42) where they have 2 for 1 drinks from 5-7 pm. The tapas there looked good Walking up Bree street you really feel the gentrification and hipster in the hood. 
-** Here's our beer ratings: Winhoek lager - 3.75 Natasha, 2.25 Josh. Light. Natural. Easy to drink. Fresh. 
-** Castle lager. 1.75. Heavier. 
+* We walked around Bree street and went for happy hour at [La Parada](https://goo.gl/maps/wKZBeXoGpo42) where they have 2 for 1 drinks from 5-7 pm. The tapas there looked good walking up Bree street. 
 * For dinner we ate at [South China Dim Sum](https://goo.gl/maps/NbtqHADiP422). As Josh calls it, this was white people Dim sum, but I really enjoyed it since we can't get anything like that in Kenya. 
 
 ### Day 2
 * Coffee at Grind 4 truth again
-* _Iziko Bo Kaap Museum_ - this house built in 1763 is the oldest in the Bo Kaap neighborhood: Malay's enclave nestled in Signal Hill. The museum showcases Cape Muslims' history and culture with its iconinic multi-colored brightly painted houses (done in the 90s when apartheid ended) with front terraces which typify Cape Muslim's social culture. The Dutch East India Company brought the original Malays to CT from 1658 who came from the Indonesian Islands, Sri Lanka and India. Bo-Kaap means "above Cape Town".
+* [Iziko Bo Kaap Museum](https://goo.gl/maps/s2Gxhw95GRE2) - this house built in 1763 is the oldest in the Bo Kaap neighborhood: Malay's enclave nestled in Signal Hill. The museum showcases Cape Muslims' history and culture with its iconinic multi-colored brightly painted houses (done in the 90s when apartheid ended) with front terraces which typify Cape Muslim's social culture. The Dutch East India Company brought the original Malays to CT from 1658 who came from the Indonesian Islands, Sri Lanka and India. Bo-Kaap means "above Cape Town".
 * [Biesmiellah Restaurant](https://goo.gl/maps/UphFv6Qez862) for lunch -- this restaurant does not appear to be much on the outisde & despite having burgers on the menu, it does serve yummy Cape Muslim food. We ate their samosas, [bobotie](https://en.wikipedia.org/wiki/Bobotie), and [denning vleis](https://www.cookhalaal.com/recipe/denning-vleis/). The food here is halala and it does not serve alcohol. 
 * Walked around Green market square, which is dotted with historical buildings and open air market stands. 
-* _District Six Museum_ - museum commemorating mixed-raced suburb which the apartheid razed in 1965 and relocated more than 60,000 people. 
+* [District Six Museum](https://goo.gl/maps/7SRZTAgmTuJ2) - museum commemorating mixed-raced suburb which the apartheid razed in 1965 and relocated more than 60,000 people. 
 * Coffee again at [Truth coffee](https://goo.gl/maps/Hq7GTh4CZjt). The epitome of hipster, this coffee shop serves coffee, teas, meals and desserts. Josh's long white came with a bear :) 
-* Headed in uber (350 R each way) for a drive along the coast for dramatic views of False Bay and passed the cute towns of Fish Hoek and saw surfers in Muizenberg (where the water is 5˚C warmer than the water on the western side of the peninsula). We visited the _African penguin colony at Boulder's Beach_ in Simon's Town. Simon's Town is a picturesque, quaint town which hosts South Africa's navy.
-* We walked around Simon town's main drag and grabbed a beer at Nelson's Court inn. They had a Uruguayan flag waiving outside because Uruguyan navy ships were parked at SA's base. We tried the Jack Black brew. Natasha was a 2.75 and Josh a 2.25. 
+* Headed in uber (350 R each way) for a drive along the coast for dramatic views of False Bay and passed the cute towns of Fish Hoek and saw surfers in Muizenberg (where the water is 5˚C warmer than the water on the western side of the peninsula). We visited the African penguin colony at [Boulder's Beach](https://goo.gl/maps/PeDvVvtLsC22) in Simon's Town. Simon's Town is a picturesque, quaint town which hosts South Africa's navy.
+* We walked around Simon town's main drag and grabbed a beer at Nelson's Court inn. They had a Uruguayan flag waiving outside because Uruguyan navy ships were parked at SA's base.
 * Dinner at [Obi](https://goo.gl/maps/B2uTpPou9Jv). Reservation is best. Affordable and delicious Japanese food, which is non-existent in Kenya. 
 
 ### Day 3
@@ -44,10 +42,10 @@
 ## Things we didn't do
 * Kirstenbosch National Botanical Garden - our Uber driver was born here (probably 1950s) but now it is a garden at the foot of the Table Mountain range
 * Cape of Good Hope, Table Mountain National Park - hike with stunning views
-* _Castle of Good Hope_ - oldest standing building in SA. Need at least 90 minutes to explore. 
+* Castle of Good Hope - oldest standing building in SA. Need at least 90 minutes to explore. 
 * The Castle of Good Hope or the Slave Lodge
-* Cape Point - 
+* Cape Point 
 * The Constantia Winelands
 * Iziko Slave Lodge - second oldest colonial building in Cape Town. This lodge hosted the slaves that worked in the Company's Garden built in 1679. 
 * Table Mountain - 3-4 hur round trip in cable car. Can hike to summit and have a bite at the scenic restaurant.
-* _Robben Island_ - Booked our tickets online because we saw there were many days without available slots. Ticket price was inclusive of ferry, guide and tour. 350 Rand each. A UNESCO World Heritage Site, Robben Island (meaning "Seal Island" in Dutch) has served as a penla settlement as early as 1636. The South African Prison Service took over in 1960 and closed as a prison in 1991. Nelson Mandeal, its most famous inmate, for 18 years. Attractions on the island are the Governor's House (ca 1895), the Lighthouse, the Lime Quarry (where political prisoners were required to work for at least 6 hrs per day), the Church of Good Shepherd and the Prison. The Island also has a signicant seabird population with over 130 sp. The Caspian Tern is an endangered bird that breeds on the island. 4 hour tour.
+* Robben Island_- Booked our tickets online because we saw there were many days without available slots. Ticket price was inclusive of ferry, guide and tour. 350 Rand each. A UNESCO World Heritage Site, Robben Island (meaning "Seal Island" in Dutch) has served as a penla settlement as early as 1636. The South African Prison Service took over in 1960 and closed as a prison in 1991. Nelson Mandeal, its most famous inmate, for 18 years. Attractions on the island are the Governor's House (ca 1895), the Lighthouse, the Lime Quarry (where political prisoners were required to work for at least 6 hrs per day), the Church of Good Shepherd and the Prison. The Island also has a signicant seabird population with over 130 sp. The Caspian Tern is an endangered bird that breeds on the island. 4 hour tour.
